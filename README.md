@@ -1,2 +1,2 @@
 # Almeria
-Life is a race 
+Life is a race
